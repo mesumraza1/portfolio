@@ -10,7 +10,7 @@ Get in Touch:
 
 Email: mesumraza81@gmail.com
 
-Phone No: 03306006512
+Phone No: +92 330 600 6512
 
 --------------------
 Thing's I Know:
